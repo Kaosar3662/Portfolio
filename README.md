@@ -1,2 +1,2 @@
 # Portfolio
-Coming Soon - Till then, Visit [kaosar.framer.website](kaosar.framer.website)
+Coming Soon - Till then, Visit [This Page](kaosar.framer.website)
